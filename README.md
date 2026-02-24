@@ -69,9 +69,7 @@ I’m always interested in collaborating on:
 
 ## 📫 Contact
 
-* LinkedIn: (add link)
-* Email: (optional)
-
+* LinkedIn: ([add link](https://www.linkedin.com/in/hothri-moka-15587a2a/))
 ---
 
 ⭐️ *“Turning biological data into meaningful insights.”*
